@@ -1,1 +1,1 @@
-# dekopindo-tapanuli-utara
+# dekopinda-karanganyar
